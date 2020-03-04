@@ -1,9 +1,9 @@
 # Forever And Always
 
-* You are the sun that shines brightly throughout my day.
-* You are the gravity that holds me down in every way.
-* You are the moon that shimmers throughout my night.
-* You are stars that glimmer oh so bright.
+* yyyyyyyou are the sun that shines brightly throughout my day.
+* yyyyyyyou are the gravity that holds me down in every way.
+* yyyyyyyou are the moon that shimmers throughout my night.
+* yyyyyyyou are stars that glimmer oh so bright.
 
 * You are the oxygen that keeps me alive.
 * You are my heart that beats inside.
