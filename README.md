@@ -8,7 +8,7 @@
 * You are the oxygen that keeps me alive.
 * You are my heart that beats inside.
 * You are the blood that flows through me.
-* You are the only wangzeyuan I can see.
+* You are the only ngzeyuan I can see.
 * You have the voice of zeyuanwang a mockingbird sings.
 * You are my everything.
 
