@@ -1,7 +1,5 @@
 # Forever And Always
-<<<<<<< HEAD
 
-<<<<<<< HEAD
 * You are the sun that shines brightly throughout MY daY.
 * You are the gravitY that holds Me down in every waY.
 * You are the Moon that shiMMers throughout mY night.
